@@ -1,0 +1,3 @@
+# PracticalTest01Var06
+
+EFTIMIE MIHAIL 341C2
